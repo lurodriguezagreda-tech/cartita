@@ -1,2 +1,0 @@
-# cartita
-&lt;3
